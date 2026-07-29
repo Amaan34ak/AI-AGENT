@@ -87,9 +87,9 @@ MIT License – Free to use, improve, and share.
 ## 📬 Let’s Connect
 
 Feel free to reach out if you’re curious or want to collaborate:  
-🔗 [LinkedIn](https://www.linkedin.com/in/kashif-kairo)
+🔗 [LinkedIn](https://www.linkedin.com/in/Amaan-kairo)
 
 ---
 
-> Made with 💻, ☕, and lots of curiosity by Mohammad Kashif
+> Made with 💻, ☕, and lots of curiosity by Mohammad Amaan
 
